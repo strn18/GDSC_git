@@ -1,1 +1,1 @@
-'I wanna be rich!' 
+'I wanna be very rich!' 
